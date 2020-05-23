@@ -1,3 +1,1 @@
 # laingding
-
-Hi,humans!
